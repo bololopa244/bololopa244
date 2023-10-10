@@ -1,4 +1,4 @@
-## boas vindas ao  mau canal 
+## boas vindas ao  meu perfil 
 
 - meu nome é vinicius
 
